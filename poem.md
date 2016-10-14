@@ -11,17 +11,17 @@ Laugh and be proud to belong to the old proud pageant of man.:man:<br>
 *Laugh and be merry*: **remember**, in olden time.<br>
 God made Heaven and Earth for joy He took in a rhyme,<br>
 Made them, and filled them full with the strong red wine of his mirth<br>
-The splendid joy of the stars: the joy of the earth.:world:<br>
+The splendid joy of the stars: the joy of the earth.:earth_americas:<br>
 
 So we must _Laugh and drink_ from the deep blue cup of the sky,<br>
 Join the jubilant song of the great stars sweeping by,<br>
 Laugh, and battle, and work, and drink of the wine outpoured<br>
-In the dear green earth, the sign of the joy of the Lord.:god:<br>
+In the dear green earth, the sign of the joy of the Lord.:joy:<br>
 
 *Laugh and be merry* **together**, like brothers akin,<br>
 Guesting awhile in the rooms of a beautiful inn,<br>
 Glad till the dancing stops, and the lilt of the music ends.<br>
-Laugh till the game is played; and be you merry, my friends.:man::woman:<br>
+Laugh till the game is played; and be you merry, my friends.:two_men_holding_hands:<br>
 
 ---
 
