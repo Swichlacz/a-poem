@@ -1,5 +1,5 @@
-Laugh And Be Merry
-By John Masefield
+## Laugh And Be Merry
+### By John Masefield
 
 Laugh and be merry, remember, better the world with a song,
 Better the world with a blow in the teeth of a wrong.
@@ -22,4 +22,6 @@ Guesting awhile in the rooms of a beautiful inn,
 Glad till the dancing stops, and the lilt of the music ends.
 Laugh till the game is played; and be you merry, my friends.
 
-http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073
+---
+
+[Public Domain Poetry](http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073 "Laugh And Be Merry Source")
